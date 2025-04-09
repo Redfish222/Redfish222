@@ -1,5 +1,5 @@
 ## Hi there 👋
-I am @Redfish222 and mostly work with java. I do also know javascript but I don't use it much. I am going for a mechanical engineering degree and will start my freshmen year at the Colorado School of Mines next year. I am born and raised in Colorado and so it was important for me to go to college here. I enjoy mountain biking and work as a lifegaurd to fund that hobby.
+I am @Redfish222 and mostly work with java. I do also know javascript but I don't use it much. I am going for a mechanical engineering degree and will start my freshmen year at the Colorado School of Mines next year. I am born and raised in Colorado and so it was important for me to go to college here. I enjoy mountain biking and work as a lifegaurd to fund that hobby. Enjoy yaught rock and Metalica.
 <!--
 **Redfish222/Redfish222** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
