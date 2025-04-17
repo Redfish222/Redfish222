@@ -5,6 +5,7 @@
 - I enjoy mountain biking and work as a lifegaurd to fund that hobby. 
 - Enjoy yacht rock and Metalica.
 - Big fan of the second amendment and I am conservative
+- Love Colorado but hate it's politics.
 <!--
 **Redfish222/Redfish222** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
